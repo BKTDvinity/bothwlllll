@@ -1,2 +1,7 @@
 # Gamehub
-This website is for... educational purposes...
+very educational
+
+
+
+
+made by owen btw
